@@ -1,1 +1,1 @@
-# Just a simple CV for College Assignment📄
+# for College Assignment📄
